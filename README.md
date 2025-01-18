@@ -1,4 +1,4 @@
-This is the only ViewSonic ViewBoard files currently on the internet (that I have found (don't ask how I got these))
+This is the only (Full) ViewSonic ViewBoard files currently on the internet (that I have found (don't ask how I got these))
 
 
 
@@ -16,4 +16,4 @@ This is the only ViewSonic ViewBoard files currently on the internet (that I hav
 
 
 
-I AM NOT RESPONSIBLE FOR ANY MISUSE OF THESE FILES. PLEASE BE RESPONSIBLE!
+    I AM NOT RESPONSIBLE FOR ANY MISUSE OF THESE FILES. PLEASE BE RESPONSIBLE!
