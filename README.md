@@ -5,15 +5,4 @@ This is the only (Full) ViewSonic ViewBoard files currently on the internet (tha
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-    I AM NOT RESPONSIBLE FOR ANY MISUSE OF THESE FILES. PLEASE BE RESPONSIBLE!
+I AM NOT RESPONSIBLE FOR ANY MISUSE OF THESE FILES. PLEASE BE RESPONSIBLE!
